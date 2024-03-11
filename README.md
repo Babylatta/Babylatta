@@ -1,4 +1,3 @@
-# Self Introduction
 
 ## Hello! 👋
 
